@@ -7,3 +7,4 @@ In einer Höhle in der Wüste soll er mit einem Forscher eine Kopie seiner Demon
 * Genie
 * Playboy
 * Philanthrop
+> J.A.R.V.I.S., manchmal muss man rennen, bevor man laufen kann.
