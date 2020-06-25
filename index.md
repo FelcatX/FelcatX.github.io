@@ -7,4 +7,7 @@ In einer Höhle in der Wüste soll er mit einem Forscher eine Kopie seiner Demon
 * Genie
 * Playboy
 * Philanthrop
+
 > J.A.R.V.I.S., manchmal muss man rennen, bevor man laufen kann.
+
+<img src="https://c.pxhere.com/photos/c7/dd/ironman_hero_comic-676141.jpg!d">
